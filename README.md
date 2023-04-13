@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JKNET8
-- 👀 QQ:3054256730
+- 👀 QQ:88207340
 - 🌱 Telegram：@M1237
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
