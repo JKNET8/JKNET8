@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @JKNET8
 - 👀 QQ:88207340
 - 🌱 Telegram：@M1237
-- 💞️ http//:hom98.cc
+- 💞️ http://hom98.cc
 - 📫 How to reach me ...
 
 <!---
